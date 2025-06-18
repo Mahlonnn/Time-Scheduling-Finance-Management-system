@@ -1,2 +1,2 @@
 # Time-Scheduling-Finance-Management-system
-Effectively manages you time &amp; money💸😉
+Effectively manages your time &amp; money💸😉
